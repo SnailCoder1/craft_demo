@@ -6,3 +6,5 @@ I need to master this so I can be a good team member.
 
 
 The Life of Pablo is damn boring sometimes!
+
+Hi Boa, I finally made it!! Whats uppp :D
